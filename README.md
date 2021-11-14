@@ -2,4 +2,4 @@
 - 👀 I’m interested in Python, Mathematics, Science, and TV/Movies.
 - 🌱 I’m currently learning Python 3, C++, and Java.
 - 💞️ I’m looking to collaborate with anyone on anything!!!
-- 📫 Please, contact me! --   Instagram: @ian_mctwo,  Reddit: @Xanaphia_YT,  Replit: @IanJSM
+- 📫 Please, contact me! --  Reddit: @Xanaphia_YT,  Replit: @IanJSM,  Instagram: (dm me elsewhere & i'll give it to you)
