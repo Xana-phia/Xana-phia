@@ -1,0 +1,5 @@
+- 👋 Hello there, I’m @Xana-phia!
+- 👀 I’m interested in Python, Mathematics, Science, and TV/Movies.
+- 🌱 I’m currently learning Python 3, C++, and Java.
+- 💞️ I’m looking to collaborate with anyone on anything!!!
+- 📫 Please, contact me! --   Instagram: @ian_mctwo,  Reddit: @Xanaphia_YT,  Replit: @IanJSM
